@@ -2,6 +2,5 @@
 
 this is ameerpet 
 
-azure calass
-this is morning 8 am class guys 
+this is morning 8 am azure calassclass guys 
 
